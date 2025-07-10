@@ -26,4 +26,4 @@
 
 马上将本站加入书签，从此告别低质站点的烦恼。成人羞羞免费，为你开启2025年最轻松、最畅快、最安全的日本AV观影新体验！
 
-<span style="display:none;">[Canonical link]  ( ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/huy26111/riben555555 ）</span> 
